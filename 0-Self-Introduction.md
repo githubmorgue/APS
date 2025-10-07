@@ -1,0 +1,7 @@
+My name is Hu Xuanwei. I am currently in my final year of undergraduate studies at Nanjing University of Finance and Economics, majoring in Management Science. 
+
+My academic background has equipped me with solid knowledge in quantitative analysis, information systems, and decision-making methodologies. Core courses such as Production Operation Management, Data Mining, System Engineering, and Management Information Systems have strengthened my analytical and technical skills, which align closely with my intended master's field of study—Economic Informatics.
+
+I plan to pursue a master’s degree in Germany starting in 2026. I am particularly interested in integrating economic theory with information technology to solve complex business problems. This specialization will allow me to deepen my expertise in data-driven decision support systems and digital transformation in enterprises.
+
+Beyond academics, I enjoy reading and regular physical exercise, which help me maintain focus and resilience. After completing my master’s program, I intend to return to China and apply my advanced knowledge in industry, contributing to organizational efficiency and innovation through information-based management solutions.
